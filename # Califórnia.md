@@ -1,10 +1,13 @@
-# Califórnia
+# Tenerife
+---
 
-## Factos:
-- Montanhas
-- Praias
-- Hollywood
+### População: 908.000
 
-## Link: https://ideiasnamala.com/que-fazer-california/
+### Factos:
+- é a maior ilha do arquipélago das Canárias
+- local onde se situa o 3º vulcão mais alto do mundo
+- paraíso para os triatletas
 
-Parque Nacional de Yosemite ![alt text](https://s3.amazonaws.com/sfc-datebook-wordpress/wp-content/uploads/sites/2/2018/10/60569844_DATEBOOK_freesolo1012_ph2-1024x683.jpg)
+## Link: https://www.spain-tenerife.com/pt/
+
+As praias e o vulcão de Tenerife ![](https://www.voyageur-independant.com/wp-content/uploads/que-faire-a-tenerife.jpg)
