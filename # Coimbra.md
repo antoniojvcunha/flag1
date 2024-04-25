@@ -4,7 +4,7 @@
 ### População: 140.000
 
 ### Factos:
-* Tem das universidades mais antigas do mundo e, por isso, é chamada de "A Cidade dos Esudantes"
+* Tem das universidades mais antigas do mundo, sendo chamada "A Cidade dos Estudantes"
 * Na era domidade pelos romanos tinha o nome de *AEMINUM*
 * O primeiro rei de Portugal, Afonso Henriques, está sepultado no Mosteiro de Santa Cruz, em Coimbra
 
